@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Priggs80
-- 👀 I’m interested in getting better as a man first then in whatever I'd in front next
-- 🌱 I’m currently learning how and where i fit after years of the writing places and wrong 
+- 👀 I’m interested in getting better as a man first then in whatever I have in front next
+- 🌱 I’m currently learning how and where i fit after years of the wrong places and wrong ways
 - 💞️ I’m looking to collaborate on improving how we all live together and become productive for the whole. seeing what others see that i don't. building family back. 
 - 📫 How to reach me: priggs80@gmail.com , (423) 618-0304
 - 😄 Pronouns: ...
